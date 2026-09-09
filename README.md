@@ -1,1 +1,1 @@
-this repo its about dogs
+this repo its about dogs, smal and bigs 
